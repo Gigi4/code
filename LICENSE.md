@@ -1,0 +1,2 @@
+This is LICENSE file
+082E-5F1C-CD86
